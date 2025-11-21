@@ -60,5 +60,6 @@ Weekly planning is a sacred time for you to seek revelation and organize your ef
 As mentors and missionaries, follow this process each week. Use Appendix 1 for questions to consider to make your planning more meaningful and focused on the concerns and needs of your interested people and new members. This is a sure way to grow in your capacity to minister, teach, and lead others to Christ. As Preach My Gospel promises, “The Lord will magnify your efforts. You will grow in your capacity as an instrument in His hands” (p. 151).
 
 
-References
+### **References**
+
 The Church of Jesus Christ of Latter-day Saints. (2023). Preach my gospel: A guide to sharing the gospel of Jesus Christ (Ch. 8: How do I use time wisely?). The Church of Jesus Christ of Latter-day Saints. https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/16-chapter-8?lang=eng&id=p67-p74
